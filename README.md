@@ -1,3 +1,3 @@
 # Hey! 👋🏼  I'm Onuralp
 
-I love coding, helping people, improving myself and drinking coffee.
+I love coding, helping people, developing myself and drinking coffee.
